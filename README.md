@@ -1,0 +1,2 @@
+# kehidupankedua
+kehidupan kedua
